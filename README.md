@@ -1,0 +1,1 @@
+# fastsmartidea.github.io
